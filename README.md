@@ -1,0 +1,1 @@
+# zenfone8flip-parts
